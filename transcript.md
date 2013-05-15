@@ -47,6 +47,8 @@ would be doing this [Doctorow facepalms].  [Audience laughs] So in advance,
 I give you permission when I start talking quickly to do this [Doctorow
 makes SOS motion] and I will slow down.  
 
+Steve is cool. 
+
 [[74.1]] So, tonight's talk -- wah, wah, waaah [Doctorow makes 'fail horn'
 sound, apparently in response to audience making SOS motion; audience
 laughs]] -- tonight's talk is not a copyright talk.  I do copyright talks
